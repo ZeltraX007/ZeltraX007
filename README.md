@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **aritrasarkar153@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Uh9DGDeUpOoTABx_ukznhUVBDffrQhgb/view?usp=sharing](https://drive.google.com/file/d/1Uh9DGDeUpOoTABx_ukznhUVBDffrQhgb/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Uh9DGDeUpOoTABx_ukznhUVBDffrQhgb/view?usp=sharing)
 
 - ⚡ Fun fact **I am a health freak**
 
